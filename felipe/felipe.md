@@ -1,0 +1,5 @@
+# Instrução de Hardjedefe
+
+Instrução de Hardjedefe, também conhecida como Ensino de Hordedefe e Ensino de Djedefor, é uma obra que pertence à literatura didática egípcia do Império Antigo. É possivelmente a mais antiga de todas as Instruções conhecidas, composta durante a V dinastia de acordo com Miriam Lichtheim, anterior às Instruções de Kagemni e As Máximas de Ptaotepe. Apenas alguns fragmentos do início do texto sobreviveram em um punhado de óstraco do Império Novo e uma tabuleta de madeira da Época Baixa.
+
+As primeiras linhas do texto estabelecem o príncipe Djedefor, filho de Quéops, como autor da Instrução, mas isso tem se mostrado altamente improvável. Na antiguidade Hardjedefe gozava de uma reputação de sabedoria, seu nome aparece no Papiro Westcar, e de acordo com as Canções do harpista da tumba do faraó Intefe, uma cópia da qual sobrevive no Papiro Harris 500, é mencionado no mesmo fôlego que Imotepe, tendo suas máximas sobrevivido enquanto seu túmulo tinha sido perdido.Sua fama foi especialmente grande durante os períodos de revivalismo clássico, quando ele e outros sábios do Império Antigo se tornaram modelos para aspirantes a escribas.
